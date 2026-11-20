@@ -1,7 +1,7 @@
  Hi, I'm Cha 🎀💖
 BSIT Student | Still Learning, Still Growing
  
-"Everyone starts somewhere. I'm just starting mine."
+"Everyone starts somewhere. I'm just starting mine.
  
 🎀 Who I Am 🎀
 💖 BSIT student
